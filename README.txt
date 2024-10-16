@@ -1,1 +1,1 @@
-Trí gửi lời chào 
+Hào gửi lời chào 
